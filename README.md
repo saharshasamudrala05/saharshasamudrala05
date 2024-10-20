@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @saharshasamudrala05
+- 👀 I’m interested in Artificial Intelligence, Machine Learning, and Robotics
+- 🌱 I’m currently learning advanced AI/ML techniques and working on exciting projects like AI-Driven Research Engine for Commercial Courts
+- 💞️ I’m looking to collaborate on AI, ML, and Robotics-based projects or hackathons
+- 📫 How to reach me: [Email](mailto:saharshasamudrala05@gmail.com) | [LinkedIn](https://www.linkedin.com/in/samudrala-saharsha-23bbb9259)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love exploring the intersection of AI and space exploration 🚀
